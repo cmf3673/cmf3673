@@ -1,4 +1,7 @@
-### Hi there 👋
+### Caleb Ford
+#### [🎵](https://open.spotify.com/user/cmf3673) 
+#### [📩](mailto:cmf3673@gmail.com)
+
 
 <!--
 **cmf3673/cmf3673** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
