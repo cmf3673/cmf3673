@@ -1,4 +1,4 @@
-### :)
+### Hi! Check out my music or email me below.
 #### [🎵](https://open.spotify.com/user/cmf3673) 
 #### [📩](mailto:cmf3673@gmail.com)
 
