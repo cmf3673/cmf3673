@@ -1,4 +1,4 @@
-### NLP Resercher and UT Math student
+### NLP Resercher, SWE and UT Math student
 #### [email](mailto:cmf3673@gmail.com)
 
 
