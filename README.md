@@ -1,4 +1,4 @@
-### NLP Resercher, SWE and former UT Math student
+### SWE @ [Goldman Sachs TxB](https://developer.gs.com/discover/txb) and former UT Math student
 #### [email](mailto:cmf3673@gmail.com)
 
 
