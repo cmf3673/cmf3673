@@ -1,4 +1,4 @@
-### SWE @ [Goldman Sachs TxB](https://developer.gs.com/discover/txb) and University of Texas math alumnus
+### SWE @ [PMG](www.pmg.com) and University of Texas math alumnus
 #### [email](mailto:cmf3673@gmail.com)
 
 
