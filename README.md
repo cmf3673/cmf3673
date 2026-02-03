@@ -1,4 +1,4 @@
-### SWE @ [PMG](www.pmg.com) and University of Texas math alumnus
+### SWE @ [PMG](www.pmg.com) and University of Texas alumnus
 #### [email](mailto:cmf3673@gmail.com)
 
 
