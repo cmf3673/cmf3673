@@ -1,4 +1,4 @@
-### SWE @ [PMG](www.pmg.com) and [Texas Longhorn](www.utexas.edu/)
+### SWE @ [PMG](www.pmg.com) and [Texas Longhorn](www.utexas.edu)
 #### [email](mailto:cmf3673@gmail.com)
 
 
